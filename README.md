@@ -1,2 +1,2 @@
-# -NixyDaizy.github.io
+# NixyDaizy.github.io
 Cris Dominic Oliveros
